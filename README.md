@@ -1,18 +1,8 @@
-- 👋 Hi, I’m @Gohostiee
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+making this bio look good when i got time, too constrained rn.
 
-<!---
-Gohostiee/Gohostiee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^   
+i've made around 20 full projects over the length of two years with a good number of them being bigger long term undertakings which i still build upon to this day.
 
-nvm mind all that up there(pimpin it later maybe????)
+Might slowly add them to this git but honestly it sounds so drag to do it properly, ask me personally in order to see them properly
 
-
-
-hit me up on my disc Gohostie Queenie OwU#4541 rn Gohost#4541 normally
-league of legends
+email gohost32eb@gmail.com
+hit me up on my discord Gohost#4541 normally
